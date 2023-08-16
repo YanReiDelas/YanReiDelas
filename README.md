@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @YanReiDelas
-- 👀 I’m interested
+- 👀 I’m interested em professoras
 - musica favorita é:https://youtu.be/QZUjblbETbk
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
