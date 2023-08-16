@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @YanReiDelas
 - 👀 I’m interested em professoras
 - musica favorita é:https://youtu.be/QZUjblbETbk
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on coroas de 50tinha
 - 📫 How to reach me ...
 TESTE
 
