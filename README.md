@@ -3,7 +3,7 @@
 - musica favorita é:https://youtu.be/QZUjblbETbk
 - 💞️ I’m looking to collaborate on coroas de 50tinha
 - 📫 How to reach me: andando
-  
+- cena de filme faavorita:https://youtu.be/Ufh5qaxi0Dc
 
 ![](https://quatrorodas.abril.com.br/wp-content/uploads/2022/07/09_steiger_FLP8994.jpg?quality=70&strip=info)
 
