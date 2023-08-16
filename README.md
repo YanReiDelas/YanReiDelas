@@ -11,4 +11,5 @@
 YanReiDelas/YanReiDelas is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
--![image](https://github.com/YanReiDelas/YanReiDelas/assets/138672623/2621660d-0ec7-4bd9-81de-77bf8de8752a)
+![image](https://github.com/YanReiDelas/YanReiDelas/assets/138672623/1b6c1885-7421-4754-8797-3e3f0d2811b0)
+
