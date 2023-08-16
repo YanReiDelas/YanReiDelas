@@ -2,7 +2,7 @@
 - 👀 I’m interested em professoras
 - musica favorita é:https://youtu.be/QZUjblbETbk
 - 💞️ I’m looking to collaborate on coroas de 50tinha
-- 📫 How to reach me ...
+- 📫 How to reach me: andando
 TESTE
 
 ![](https://quatrorodas.abril.com.br/wp-content/uploads/2022/07/09_steiger_FLP8994.jpg?quality=70&strip=info)
